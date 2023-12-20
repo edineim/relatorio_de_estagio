@@ -1,1 +1,1 @@
-# Relatório de estágio com as tarefas desenvolvidas
+# Relatório de estágio com as atividades desenvolvidas
